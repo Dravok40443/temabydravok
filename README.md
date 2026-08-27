@@ -1,3 +1,4 @@
+<img width="2594" height="1093" alt="Captura de tela 2026-08-27 185003" src="https://github.com/user-attachments/assets/c32b005d-6edd-4b40-b6c6-90cad4936921" />
 # THEME BY DRAVOK ANONYMOUS40443
 
 ## TemaByDravok
